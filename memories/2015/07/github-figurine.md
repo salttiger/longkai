@@ -4,7 +4,7 @@
 
 Github越来越流行，几乎是软件工程师们每天工作都要浏览的网站。有没有想过，放一个真正的Github Octocat（对，没错，就是那只猫）手办在你旁边是一种怎样的体验？
 
-感兴趣的同学可以访问Github手办的[官方链接](https://github.myshopify.com/products/5-inch-octocat-figurine)查看一下。通过视频可以看到质量还是不错的，Made with ♥ by Github，并且Only available on Github，个人觉得还是挺有收藏价值的。
+感兴趣的同学可以访问Github手办的[官方链接](https://github.myshopify.com/products/5-inch-octocat-figurine)查看一下。通过[视频](https://vimeo.com/107196396)可以看到质量还是不错的，Made with ♥ by Github，并且Only available on Github，个人觉得还是挺有收藏价值的。
 
 于是乎也就有了这次团购的想法，本次团购非盈利，价格上也没有优惠，只是小范围的发起，主要目的为了节省运费和简化大伙的海淘流程，需要先行预约，费用大家均摊。
 
